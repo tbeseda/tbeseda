@@ -1,0 +1,14 @@
+
+- programming
+	- I write a lot of code in my free time - much of it mediocre and lost
+- tech & gadgets
+	- I read **a lot** about technology
+	- soft spot for backing frivolous things on Kickstarter
+- online gaming
+	- team-based, objective games like Overwatch
+- crafting
+	- this is currently leatherwork
+	- also building. from home improvement to furniture
+	- classic pickup trucks (no current project)
+- tattoos
+	- oddly, the process is more interesting than the final product
